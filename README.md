@@ -8,7 +8,12 @@ Tugas 1 Pertemuan 2 <br>
 ================================= <br><br>
 
 Tugas 2 Pertemuan 3 <br>
-https://github.com/user-attachments/assets/a8323447-3903-4c59-a475-99bc3892aae5
+
+
+
+https://github.com/user-attachments/assets/8ac02742-d4a9-4e56-8cec-2b0e22fe4c7e
+
+
 
 
 
